@@ -1,3 +1,2 @@
 # mestradosmagos
-UUUUUUUUUOOOOOOOOOOOuiuiuuu
 **Hello, tropaa**
